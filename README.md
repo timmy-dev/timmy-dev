@@ -2,6 +2,7 @@
 - 👀 I’m interested in creating projects
 - 💞️ Hit me up if you want to. We can work on projects together.
 - 📫 You can reach me on discord by joing this server https://discord.gg/BwDzySedrU . I am the owner of the server.
+- I am a ethical hacker and programer.
 
 -------------------------- Donate ---------------------------------
 
